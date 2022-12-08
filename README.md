@@ -4,7 +4,7 @@
 I would like to welcome you on my profile. \
 I create websites and web applications. \
 Check out my projects  👉 [here](https://srv49151.seohost.com.pl/)  👈. \
-Make yourself at home 😇. \
+Make yourself at home 😇. 
 
 ## Contact:
  https://srv49151.seohost.com.pl/  \
