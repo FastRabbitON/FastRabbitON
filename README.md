@@ -8,7 +8,7 @@ Make yourself at home.
 
 <!-- [projects](https://srv49151.seohost.com.pl/projects.html) and [CV](https://srv49151.seohost.com.pl) \ -->
 ## Contact:
- https://srv49151.seohost.com.pl/  \
+ https://fastrabbiton.pl/  \
  https://github.com/FastRabbitON \
  fastrabbiton@gmail.com
 
